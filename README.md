@@ -10,4 +10,5 @@ Good morning. I just finished my vocal warm-ups. Did you hear me? Yeah, I'm not 
 
 <img src="https://64.media.tumblr.com/69889b8b5a34b437f15f9aee3fa04db2/0cb04ba9bfee199f-66/s1280x1920/6574bd45d04cd3b5931cbeaf8cbb76b5b4063aa0.pnj" width=600>
 
-![](https://64.media.tumblr.com/3e99bd2ff430bc10de0484e2e95d2c95/b749fc5cea9a5374-7e/s1280x1920/1a5f3bbbf672fbc0ec661584da03b1f91e53a255.jpg)
+> ##### i encourage wlw/yuri ship cuddles :D , im very sane about them
+
