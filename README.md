@@ -10,5 +10,5 @@ Good morning. I just finished my vocal warm-ups. Did you hear me? Yeah, I'm not 
 
 <img src="https://64.media.tumblr.com/69889b8b5a34b437f15f9aee3fa04db2/0cb04ba9bfee199f-66/s1280x1920/6574bd45d04cd3b5931cbeaf8cbb76b5b4063aa0.pnj" width=600>
 
-> ##### i encourage wlw/yuri ship cuddles :D , im very sane about them
+> ##### i encourage wlw/yuri ship cuddles :D , ESPECIALLY sandbina im very sane about them
 
